@@ -1,1 +1,1 @@
-Shring Pluralsight Submission
+Sharing Pluralsight Submission
